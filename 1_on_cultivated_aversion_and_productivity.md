@@ -1,3 +1,12 @@
+
+**Glossary:**
+
+_Equanimity:_ Having a calm and balanced mind. Not reacting with craving or aversion towards pleasant or unpleasant situations or bodily feelings.
+
+_Goenka:_ S.N. Goenka, during the 10 days, audio and video recordings of him are used to explain and teach the technique.
+
+_Suffering:_ Any time you can't accept and are in reaction to the current situation you're in, you're suffering. E.g. Someone hits you -> You react with anger to the pain you feel; You have a job interview coming up -> You react with fear or anxiety in anticipation of the interview; Someone keeps interrupting you -> You react with annoyance, impatience, or sometimes even anger; You're running late to meet a new acquaintance -> You react with stress, dissapointment in yourself and anxiety towards judgement from your new acquaintance; A mostquito stings you -> You react to the itchy feeling with scratching because you can't just accept it; Your stomach tells you he really really needs to eat but you can't get at food at the moment -> You become hangry. I could go on forever, people are suffering in a million different ways.
+
 ## Dhamma Letters #1: On Cultivated Aversion and Productivity
 
 I thought I'd pull this into email since we'll never find it in imessage ever again. And thanks for stimulating these conversations, it's a great way to think about things piece by piece, part by part ;)
